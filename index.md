@@ -1,4 +1,4 @@
-# **Terms and Conditions for “LoM (app name)”**
+# **Land of Monsters**
 
 # **Terms and Conditions**
 
